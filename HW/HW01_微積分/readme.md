@@ -1,0 +1,9 @@
+AI對話網址：
+001
+https://gemini.google.com/share/8ac7739d8abc
+002
+https://gemini.google.com/share/ae2277e4730a
+003
+https://gemini.google.com/share/199e2921a0ae
+004
+https://gemini.google.com/share/f35464b18357
